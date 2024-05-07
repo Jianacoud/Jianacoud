@@ -1,2 +1,1 @@
-- 👋 Hi, I’m Jiana khoury a new fashion designer 
---->
+- 👋 Hi, I’m Jiana khoury a new fashion designer,I studied at shenkar and will continue my studies in italy specifically in milan🇮🇹 
